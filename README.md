@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+###  What Abuot me 
+i am developer 
+
+### what do i for fun 
+i exercise, read, many things 
